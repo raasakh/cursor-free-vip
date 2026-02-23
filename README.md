@@ -1,6 +1,4 @@
-# ➤ Cursor Free VIP
-
-https://www.youtube.com/watch?v=dX8hdDDoht8
+# ➤ Cursor Free VIP Инструкция => https://www.youtube.com/watch?v=dX8hdDDoht8
 
 <div align="center">
 <p align="center">
