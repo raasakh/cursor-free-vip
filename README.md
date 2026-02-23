@@ -1,5 +1,7 @@
 # ➤ Cursor Free VIP
 
+https://www.youtube.com/watch?v=dX8hdDDoht8
+
 <div align="center">
 <p align="center">
   <img src="./images/logo.png" alt="Cursor Pro Logo" width="200" style="border-radius: 6px;"/>
